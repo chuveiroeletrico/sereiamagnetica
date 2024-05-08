@@ -1,0 +1,2 @@
+# sereiamagnetica
+bicicleta atordoada
